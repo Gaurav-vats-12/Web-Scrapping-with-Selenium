@@ -23,13 +23,6 @@
 ## Collaboration
 - Collaborations are welcomed ❤️
 
-## Acknowledgments
- - I would like to thank [Michael Kitas](https://github.com/michaelkitas)
-   
-## Contact
- - LinkedIn: [Nebeyou Musie](https://www.linkedin.com/in/nebeyou-musie)
- - Gmail: nebeyoumusie@gmail.com
- - Telegram: [Nebeyou Musie](https://t.me/NebeyouMusie)
 
 
 
